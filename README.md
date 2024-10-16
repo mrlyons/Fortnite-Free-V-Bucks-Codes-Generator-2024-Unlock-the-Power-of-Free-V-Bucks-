@@ -2,7 +2,7 @@
 
 Are you tired of grinding endlessly for V-Bucks in Fortnite? Well, you’re in luck! Fortnite Free V-Bucks Codes Generator 2024 is here to save the day. If you're looking to upgrade your skins, gliders, pickaxes, or even battle passes, this generator is your golden ticket to a treasure trove of free V-Bucks.
 
-[✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 Before we dive into how this works and why you should take advantage of it, let’s explore Fortnite, the benefits of using V-Bucks, and why this year’s V-Bucks code generator is the best thing to happen to Fortnite enthusiasts. Ready to level up your Fortnite experience? Let’s get started!
 
